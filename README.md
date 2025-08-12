@@ -1,0 +1,1 @@
+# jornadaser-privacy-policy
